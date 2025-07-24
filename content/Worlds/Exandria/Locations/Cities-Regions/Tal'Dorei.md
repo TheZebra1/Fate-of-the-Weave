@@ -1,0 +1,1 @@
+Tal'Dorei is the name used by humans to refer to the entire continent on Exandria in which the Republic of Tal'Dorei rests, though this is purely a human conflation. The Elvish name for the continent is Gwessar, meaning "Fields of Joy".

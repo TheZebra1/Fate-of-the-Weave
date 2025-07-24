@@ -1,0 +1,4 @@
+- **Nature:** Floating landmasses sustained by magic, often stemming from the Spellplague, varying in size and altitude.
+- **Characteristics:** Can support life, occasionally featuring portals to the Elemental Plane of Water; spellcasters can create or manipulate them through rituals.
+- **History:** Netherese were believed to be pioneers in earthmote creation during the era of flying cities; after the Spellplague, earthmotes proliferated, especially in areas where Toril and Abeir intersected, leading to territorial disputes.
+- **Post-Sundering:** Following the Second Sundering, occurring around 1487 DR, many earthmotes lost their magic, either plummeting to the ground or shifting to Abeir, while some persisted across Toril.

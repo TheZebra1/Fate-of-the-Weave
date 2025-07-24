@@ -1,0 +1,3 @@
+---
+hometown: Baldur's Gate
+---

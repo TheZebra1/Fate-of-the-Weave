@@ -1,0 +1,4 @@
+- *Show's put on by [[projectors]] at EverNight are 52% off on [[a. Calendar of Harptos#Days of the Week|Solpeak]]* - [[EverNight's Dragon Arena.png]]
+- *[[Elturel]]'s return from [[Avernus]] in 1492 DR created many new [Tieflings](https://forgottenrealms.fandom.com/wiki/Tiefling) in the world. Sadly they were feared and banished from Elturel*
+- *[[Mystra]] is the most powerful Deity 2nd only to [[Ao]]*
+- *God's can anoint [[Chosen|Chosen]], at great cost to themselves, and no more than once every 25 years*

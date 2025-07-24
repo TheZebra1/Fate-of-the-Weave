@@ -1,0 +1,21 @@
+#### Arlo
+- Arlo interrogated the living Doppleganger twin
+	- The twin tried to barter information for his life
+		- Revealed that they learned of the Weave Eater through the "rat network" and were sacrificing people in order to win the Weave Eater's favor when he comes.
+- Arlo looted the bodies of the Doppleganger twins
+	- [[Frost Gauntlet]]
+	- [[decanter-of-endless-water]]
+- The group returned to the [[Yawning Portal]] 
+	- Arlo found blood trickling from the room next to his & retrieved the party in order to investigate.
+	- They broke in and discovered that a Harper named Helga had come to Waterdeep seeking aid at a local sanctuary that takes feeds children and less fortunate minority races
+		- While waiting for an Owlin representative of the [[Lords’ Alliance]] Helga had been ruthlessly murdered and interrogated.
+	- Authorities were called and a plan was made to visit the sanctuary to investigate
+- Arlo did some shopping at [[Pills & Potions]] & charmed [[Angelica Bitterroot]] connecting with her over the plight of small businesses in the face of ruthless corporations
+	- Arlo received a free potion & a 20% discount while he maintains a friendly relationship with Angelica
+	- Angelica's daughter "Raisin" doesn't seem to have any manners
+- Arlo shopped for a [[Riding Dog]] at [[Waterdeep Stables]], and found a, stronger than usual, un-named Mastiff of great temperament.
+	- The mastiff seems to respond well to verbal orders
+		- [[Potter Pettigrew]] instructed the dog to help Arlo track down the source of the Rat problem
+- Arlo stealthily rode over to the [[Pathogen]] hideout and reported to [[Vendrich Throm]]
+	- Arlo showed Vendrich proper respect, never looking him directly in the eyes
+		- Vendrich commented that he was impressed with Arlo's efficient performance and as a show of good faith in a long term partnership instructed his men to allow Arlo access to one item from the gang's armory

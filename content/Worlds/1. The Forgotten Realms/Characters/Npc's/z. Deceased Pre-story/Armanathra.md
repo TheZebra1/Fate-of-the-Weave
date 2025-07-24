@@ -1,0 +1,1 @@
+A Green Dragon. She died in 1200 DR and her remains lie in [[The Undercroft]] in the form of the [[Guardian Stone]], courtesy of [[Khelben Arunsun]].

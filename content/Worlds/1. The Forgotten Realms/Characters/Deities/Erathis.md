@@ -1,0 +1,1 @@
+https://dnd-campaign.fandom.com/wiki/Erathis

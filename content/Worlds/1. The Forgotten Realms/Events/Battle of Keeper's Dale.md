@@ -1,0 +1,1 @@
+https://forgottenrealms.fandom.com/wiki/Battle_of_Keeper%27s_Dale

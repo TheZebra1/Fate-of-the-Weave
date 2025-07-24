@@ -1,0 +1,10 @@
+[[Vajra Safahr.png]]
+![[Vajra Safahr.png]]
+
+**Vajra Safahr** became the 8th [[Blackstaff]] at the untimely death of the prior. She was quite young when she became the Blackstaff, and was the youngest in Waterdeep's history.
+
+The Blackstaff she carried when proclaiming her status as the new Blackstaff was the "true blackstaff", a large rune-inscribed duskwood staff with silver veins. 
+
+The whole staff was blackened by use. Atop the staff was a large axe head in the shape of snarling wolf head, which had glowing green eyes.
+
+[[My Eyes Open Always]]

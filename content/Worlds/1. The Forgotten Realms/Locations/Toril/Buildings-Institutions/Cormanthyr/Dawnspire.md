@@ -1,0 +1,11 @@
+#### The Dawnspire
+- **Purpose**: A sanctuary for the [[Order of the Arcane Blade]], protecting the forest of Cormanthor and preserving the light of the Order after the Retreat to [[Evermeet]].
+---
+- **Founder**: Aelindor Vaelithar, an ancient elf transformed into an eternal dryad through the High Magic ritual **[[Elven High Magic|Fhaor'Akh'Tel'Quess]]**.
+- **Protection**: The **N’Maernthor** spell safeguards the Dawnspire and its surrounding area:
+  - Repels malicious entities and hides the temple from unwanted intrusion.
+  - The spell is tied to [[Aelindor Vaelithar]]’s presence within [[Cormanthor Forest]]. If Aelindor leaves the forest, the spell is nullified.
+- **Membership**:
+  - Originally comprised of elves, but after the Retreat, it became open to all races who share the Order’s ideals.
+  - A mix of younger, pragmatic members and traditionalists, creating internal tensions.
+- **Current Role**: A beacon of hope and a base for reclaiming and protecting Cormanthor’s magic. The Order’s mission is to one day restore balance to the forest.

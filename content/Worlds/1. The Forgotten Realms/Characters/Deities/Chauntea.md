@@ -1,0 +1,2 @@
+[[faerunian-chauntea-scag|Chauntea]]
+The druids of the Moonshae Isles worship the Earthmother, she who is the generative power of the land itself. To some mainlanders, the Earthmother is an aspect or manifestation of Chauntea, but to the Ffolk, she is simply the Earthmother, and always will be. The moonwells of the isles are her sacred sites and her windows onto the world. See "Druids" in chapter 4 for more information.

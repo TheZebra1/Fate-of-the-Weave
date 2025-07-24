@@ -1,0 +1,12 @@
+#### Kiyano
+- My mans is just vibin and thrivin through life
+- Kiyano ordered "THE WORKS" for breakky and [[Kelvin]] put on a culinary performance conjuring & transmutating boars in an epic battle of constitution
+	- Kiyano absorbed all the food with ease on a NAT 20 & earned the party ***free meals all week***
+	- The epic success fully satiated Kiyano and lowered his exhaustion from 3 to 2
+- Kiyano caught a sick convo with fish dude, [[Admirius Ackbar]]
+	- Kiyano spilled the beans about some baddies that they'd killed earlier
+	- Lord Ackbar seemed very interested and muttered *"solving this will get me in with the detective for sure.."**
+- Before Lord Ackbar could acquire all of the details, Arlo swooped in and put him off the trail. Ackbar believes Kiyano was simply drunk.
+- Kiyano got to meditate with a chill ancient Tortle named Master Waygoo
+	- Waygoo opened Kiyano's chakras, relieving his exhaustion down to 1
+	- Waygoo also instructed Kiyano to look for the "the sign of the ravens" on the West end of town and find a Book & that the book may well find him first.

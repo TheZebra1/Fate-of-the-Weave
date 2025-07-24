@@ -1,0 +1,3 @@
+Nuur Throth was a very unusual cave. In the upper parts of the cave, sheets of wizard fire constantly danced about. Throughout the cave were clusters of unusual stones that covered deep wells. Around these clusters grew grooves of [sussur](https://forgottenrealms.fandom.com/wiki/Sussur) trees.
+
+Located in the center of the cavern was a large [earth node](https://forgottenrealms.fandom.com/wiki/Earth_node) made from dense black iron ore. This earth node was linked to six other earth nodes scattered throughout northern Faerûn, from [[Icewind Dale]] to [[Kryptgarden Forest]]. Anyone casting the node door spell could travel along this network of linked earth nodes.

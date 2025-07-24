@@ -1,0 +1,1 @@
+The Drow academy for Priestesses of [[Lolth]], in [[Menzoberranzan]]

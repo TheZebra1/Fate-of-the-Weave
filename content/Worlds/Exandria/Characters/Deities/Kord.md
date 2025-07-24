@@ -1,0 +1,1 @@
+https://criticalrole.fandom.com/wiki/Kord

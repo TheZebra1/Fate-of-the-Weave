@@ -1,0 +1,13 @@
+## Overview
+- **Type**: A large, cold inland sea located in northern Faerûn.
+- **Surroundings**: Borders [[Thar]], the [[Galena Mountains]], and the [[Vast]].
+- **Significance**: A hub of trade, travel, and military activity in northern Faerûn.
+- **Notable Settlements**:
+  - **[[Hillsfar]]**: A xenophobic city-state with strong military power.
+  - **[[Melvaunt]]**: A grim, industrial city known for its smithies, weapon crafting, and mercantile ambitions.
+  - **[[Mulmaster]]**: A city known for its corruption and intrigue.
+  - **[[Phlan]]**: A rebuilding city with a long history of destruction and resurgence.
+  - **[[Zhentil Keep]]**: Formerly a major base of the [[Zhentarim]], now a ruin.
+- **Reputation**: Known for its dangerous waters, volatile politics, and pirate activity.
+	- Rumored home of [[Thermontarax]].
+- **Economy**: A center for commerce, connecting remote regions through its ports and trade routes.

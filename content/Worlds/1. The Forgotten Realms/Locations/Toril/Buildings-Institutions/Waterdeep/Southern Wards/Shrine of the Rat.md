@@ -1,0 +1,3 @@
+- Temple dedicated to cult worshiping "The Rat King."
+- Followers despise the wealthy, advocating for absolute societal equality, even if it means poverty for all.
+- Belief in universal destitution if any are relegated to low status, akin to all being "rats of the land."

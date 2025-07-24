@@ -1,0 +1,5 @@
+  - Come in pairs, each carved to match the other for easy recognition.
+  - Allows casting of the [[sending]] spell from one stone to the other.
+	  - Target is the bearer of the other stone; if none, messages are all saved until the stone gains a user.
+  - Can **initiate** a sending once per day; recharge at dawn.
+  - Destruction of one stone renders the other nonmagical.

@@ -1,0 +1,1 @@
+https://bg3.wiki/wiki/Karlach

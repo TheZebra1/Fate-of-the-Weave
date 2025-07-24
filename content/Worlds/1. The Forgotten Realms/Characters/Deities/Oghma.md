@@ -1,0 +1,1 @@
+[[faerunian-oghma-scag|Oghma]]
