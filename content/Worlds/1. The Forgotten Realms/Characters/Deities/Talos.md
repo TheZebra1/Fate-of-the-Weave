@@ -1,1 +1,0 @@
-[[faerunian-talos-scag|Talos]]

@@ -1,1 +1,0 @@
-[[faerunian-torm-scag|Torm]]

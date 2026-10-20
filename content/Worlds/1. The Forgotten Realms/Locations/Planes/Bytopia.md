@@ -1,1 +1,0 @@
-[[layers-of-bytopia-xdmg|Layers of Bytopia]]

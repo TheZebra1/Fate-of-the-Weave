@@ -1,1 +1,0 @@
-[[faerunian-myrkul-scag|Myrkul]]

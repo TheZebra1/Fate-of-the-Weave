@@ -1,1 +1,0 @@
-8th month of the year

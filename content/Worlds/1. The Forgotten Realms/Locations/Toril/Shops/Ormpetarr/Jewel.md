@@ -1,1 +1,0 @@
-A filthy beer and urine-smelling festhall and a brothel that existed in the century between the [[Spellplague]] and the [[Second Sundering]]. Its most famous employee was [[Moirah]] with her spellscar just below the navel

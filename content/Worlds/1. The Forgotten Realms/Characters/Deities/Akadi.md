@@ -1,1 +1,0 @@
-[[faerunian-akadi-scag|Akadi]]

@@ -1,1 +1,0 @@
-[[faerunian-cyric-scag|Cyric]]

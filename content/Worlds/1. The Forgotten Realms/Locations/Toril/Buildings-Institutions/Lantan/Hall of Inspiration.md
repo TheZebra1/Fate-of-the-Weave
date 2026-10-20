@@ -1,1 +1,0 @@
-[[Ayrorch]] base of operations in [[Sambar]]

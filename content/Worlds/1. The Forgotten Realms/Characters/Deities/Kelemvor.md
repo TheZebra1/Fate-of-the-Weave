@@ -1,1 +1,0 @@
-[[faerunian-kelemvor-scag|Kelemvor]]

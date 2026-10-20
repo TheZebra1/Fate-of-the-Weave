@@ -1,1 +1,0 @@
-[[faerunian-ilmater-scag|Ilmater]]

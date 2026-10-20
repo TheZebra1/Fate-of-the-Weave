@@ -1,5 +1,0 @@
-[[Bust Barrington]]
-[[Asura Swiftfoot]]
-[[Roaming Bull]]
-[[Brigham Alikir]]
-[[Timothy Thimbleton]]

@@ -1,1 +1,0 @@
-Gem shop in [[Sadash]]

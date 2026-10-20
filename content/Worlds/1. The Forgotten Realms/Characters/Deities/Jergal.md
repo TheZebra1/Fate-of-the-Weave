@@ -1,1 +1,0 @@
-[[faerunian-jergal-scag|Jergal]]

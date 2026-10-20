@@ -1,1 +1,0 @@
-Ritual spell cast by ancient powerful elves to turn dragonkind against each other, ultimately stopping them from dominating Toril

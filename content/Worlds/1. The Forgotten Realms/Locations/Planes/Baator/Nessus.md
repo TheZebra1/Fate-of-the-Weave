@@ -1,1 +1,0 @@
-![[Nessus Throne Doors.webp]]

@@ -1,1 +1,0 @@
-https://forgottenrealms.fandom.com/wiki/High_Moor

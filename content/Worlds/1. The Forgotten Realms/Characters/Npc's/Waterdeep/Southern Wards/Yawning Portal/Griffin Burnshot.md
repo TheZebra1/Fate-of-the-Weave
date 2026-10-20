@@ -1,1 +1,0 @@
-Burly oaf and owner of [[Kill Em Goodes]]

@@ -1,1 +1,0 @@
-Magical construct creature that is mindless, emotionless and only knows how to fulfill the orders of it's creator

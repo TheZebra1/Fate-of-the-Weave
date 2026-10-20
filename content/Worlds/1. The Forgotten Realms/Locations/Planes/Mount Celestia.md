@@ -1,1 +1,0 @@
-[[layers-of-mount-celestia-xdmg|Layers of Mount Celestia]]

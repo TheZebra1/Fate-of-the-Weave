@@ -1,1 +1,0 @@
-https://forgottenrealms.fandom.com/wiki/Caladorn_Cassalanter#Relationships

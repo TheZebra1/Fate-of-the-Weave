@@ -1,1 +1,0 @@
-[[faerunian-tempus-scag|Tempus]]

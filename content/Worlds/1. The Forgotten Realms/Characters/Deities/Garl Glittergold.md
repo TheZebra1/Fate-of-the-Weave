@@ -1,1 +1,0 @@
-[[gnomish-garl-glittergold-scag|Garl Glittergold]]

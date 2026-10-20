@@ -1,1 +1,0 @@
-Tavern in [[Trostenwald]], run by [[Yorda]]

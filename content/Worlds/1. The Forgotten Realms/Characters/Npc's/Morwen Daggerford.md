@@ -1,1 +1,0 @@
-![[Morwen Daggerford.png|500]]

@@ -1,1 +1,0 @@
-[[faerunian-kossuth-scag|Kossuth]]

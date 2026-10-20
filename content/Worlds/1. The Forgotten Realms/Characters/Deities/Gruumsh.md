@@ -1,1 +1,0 @@
-[[orc-gruumsh-scag|Gruumsh]]

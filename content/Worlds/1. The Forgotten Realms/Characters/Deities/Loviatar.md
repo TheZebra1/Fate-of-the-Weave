@@ -1,1 +1,0 @@
-[[faerunian-loviatar-scag|Loviatar]]

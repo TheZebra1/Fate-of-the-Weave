@@ -1,1 +1,0 @@
-[[faerunian-helm-scag|Helm]]

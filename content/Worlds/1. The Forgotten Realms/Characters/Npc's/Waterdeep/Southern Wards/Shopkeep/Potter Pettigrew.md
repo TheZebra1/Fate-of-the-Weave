@@ -1,1 +1,0 @@
-Owner of Waterdeep Stables, husband of [[Petra Pettigrew]]

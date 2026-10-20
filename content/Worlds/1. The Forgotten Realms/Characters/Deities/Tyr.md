@@ -1,1 +1,0 @@
-[[faerunian-tyr-scag|Tyr]]

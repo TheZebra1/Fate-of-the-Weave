@@ -1,1 +1,0 @@
-The [[incubus-xmm|Incubus]] agent of [[Zybilna]] who hunted down and murdered [[Isolde]]'s adventuring party.

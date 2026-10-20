@@ -1,1 +1,0 @@
-Slave Quartermaster on [[The Gemfire]]

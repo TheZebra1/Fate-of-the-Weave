@@ -1,1 +1,0 @@
-![[Barok Clanghammer.png]]https://forgottenrealms.fandom.com/wiki/Dragonstaff_of_Ahghairon

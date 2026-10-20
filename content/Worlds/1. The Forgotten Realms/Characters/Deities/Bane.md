@@ -1,1 +1,0 @@
-[[faerunian-bane-scag]]

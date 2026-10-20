@@ -1,1 +1,0 @@
-[[faerunian-silvanus-scag|Silvanus]]

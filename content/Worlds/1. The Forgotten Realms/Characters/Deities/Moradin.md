@@ -1,1 +1,0 @@
-[[dwarven-moradin-scag|Moradin]]
